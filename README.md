@@ -1,1 +1,1 @@
-# Relatia-de-Mostenire--TehniciDeProg-Ex2
+# Relatia-de-Mostenire--
